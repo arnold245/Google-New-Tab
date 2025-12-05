@@ -1,3 +1,3 @@
 # Google-New-Tab
 Google Link
-https://www.google.com
+link removed until i get $5 from adam vitzthum
